@@ -1,1 +1,38 @@
 # tifo-football
+The 2022 World Cup Final was a match of extreme tactical shifts and individual brilliance, ending in a 3-3 draw before Argentina won 4-2 on penalties
+.
+How the Momentum Shifted
+For the first 70 minutes, Argentina completely dominated, while France failed to record a single shot on target
+. The momentum shifted when Argentina "took their foot off the gas" and began sitting deeper
+. This tactical retreat invited French pressure, allowing France to utilize the pace of players like Kylian Mbappé and Randal Kolo Muani
+. France's comeback was described not as a "coach’s comeback" but as one built out of isolated moments of individual play, such as Mbappé's rapid-fire goals that took the game to 2-2
+.
+Controversial Elements
+The match and tournament were marked by several points of contention:
+Off-Pitch Issues: The tournament was overshadowed by political bargaining, "sports washing," and human rights concerns, specifically regarding the deaths of migrant workers in Qatar
+.
+Deschamps' Substitutions: In a "Mourinho-esque" and "humiliating" move, French manager Didier Deschamps substituted Olivier Giroud and Ousmane Dembélé in the 41st minute, before halftime
+. It was unclear if this was due to tactical failure, illness, or injury
+.
+Penalty Decisions: Ousmane Dembélé’s "clumsy" foul on Angel Di Maria gave Argentina an early lead, while later, Nicolás Otamendi was caught in a 1-on-1 with Kolo Muani, leading to the penalty that sparked France's comeback
+.
+Tactical Successes and Failures
+Argentina’s Proactive Setup: Unlike previous rounds, Argentina was extremely proactive, flooding the midfield and playing through the middle to hurt France
+.
+Isolating Di Maria: A key tactical masterstroke was positioning Angel Di Maria on the far left to isolate him 1v1 against Jules Koundé
+. This also kept Di Maria as far as possible from Mbappé to prevent quick French transitions
+.
+France’s Defensive Weakness: France’s 4-4-2 block struggled because Mbappé does not track back, leaving space between him and Theo Hernandez
+. While Antoine Griezmann usually drops deep to cover this, Argentina successfully exploited the gaps in the French midfield
+.
+The Defensive Retreat: Argentina's decision to defend their lead by sitting deep was criticized as it played into France's strengths and invited unnecessary pressure onto a "frenetic" backline
+.
+Key Parts and Turning Points
+Lionel Messi’s Narrative: Messi scored twice and converted his shootout penalty, providing what was described as a "perfect ending" and a "neatness" to his career story
+.
+Mbappé’s Resilience: Mbappé became the first player to score a World Cup final hat-trick since 1966, showing immense mental strength to beat goalkeeper Emi Martínez three times from the penalty spot
+.
+Emi Martínez’s Heroics: Martínez made a pivotal save in the final seconds of extra time against Kolo Muani, a moment described as one of the saves of the tournament
+. His ability to "get in the head" of opponents during the shootout was crucial to the final result
+.
+Emotional Resilience: Despite blowing leads at 2-0 and 3-2, Argentina showed the emotional resilience to survive extra time and prevail in the shootout, where a "weaker side" might have crumbled
